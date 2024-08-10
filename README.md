@@ -9,20 +9,17 @@
 
 飞鸟云官网地址用手机流量访问
 
-[https://6.feiniaoyun.top ](https://7.feiniaoyun.top/)
+https://1.feiniaoyun01.life
 
 
 飞鸟云最新国内免翻网址：(2024/08/05更新)
 
+https://1.feiniaoyun01.life
 
+https://2.feiniaoyun01.life
 
-飞鸟云最新免翻墙网址：[https://6.feiniaoyun.top](https://6.feiniaoyun.top) 
+https://3.feiniaoyun01.life
 
-
-飞鸟云最新免翻墙网址：[https://7.feiniaoyun.top](https://7.feiniaoyun.top) 
-
-
-飞鸟云最新免翻墙网址：[https://8.feiniaoyun.top](https://8.feiniaoyun.top) 
 
 
 
