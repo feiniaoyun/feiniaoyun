@@ -9,10 +9,16 @@
 
 飞鸟云官网地址用手机流量访问
 
-https://1.feiniaoyun01.life
+https://7.feiniaoyun01.life
 
 
-飞鸟云最新国内免翻网址：(2024/08/29更新)
+飞鸟云最新国内免翻网址：(2024/09/12更新)
+
+https://7.feiniaoyun01.life
+
+https://8.feiniaoyun01.life
+
+https://9.feiniaoyun01.life
 
 
 https://4.feiniaoyun01.life
