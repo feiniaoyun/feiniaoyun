@@ -22,6 +22,12 @@ https://7.feiniaoyun01.life
 
 飞鸟云最新国内免翻网址：(2024/09/12更新)
 
+https://x1.feiniaoyun01.life
+
+https://x2.feiniaoyun01.life
+
+https://x3.feiniaoyun01.life
+
 https://7.feiniaoyun01.life
 
 https://8.feiniaoyun01.life
