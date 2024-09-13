@@ -57,6 +57,9 @@ https://3.feiniaoyun01.life
 
 
 飞鸟云官网以及备用网址：
+飞鸟云官网：[https://1.feiniaoyun.top](https://1.feiniaoyun.top) 
+
+飞鸟云官网：[https://2.feiniaoyun.top](https://2.feiniaoyun.top) 
 
 飞鸟云官网：[https://3.feiniaoyun.top](https://3.feiniaoyun.top) 
 
