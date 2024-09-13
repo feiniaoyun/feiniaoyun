@@ -14,13 +14,14 @@ https://sub.ccsub.site
 
 填入订阅地址，其他不用改，往下拉，点击生成订阅地址，再复制转换后的订阅地址，填入到客户端，配置，粘贴URL即可。
 
+iPhone小火箭客户端需要点击APP右下角设置，延迟测试方式选ICMP。
 
 飞鸟云官网地址用手机流量访问
 
-https://7.feiniaoyun01.life
+https://x1.feiniaoyun01.life
 
 
-飞鸟云最新国内免翻网址：(2024/09/12更新)
+飞鸟云最新国内免翻网址：(2024/09/13更新)
 
 https://x1.feiniaoyun01.life
 
