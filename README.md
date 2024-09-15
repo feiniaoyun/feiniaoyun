@@ -16,14 +16,14 @@ https://sub.ccsub.site
 
 iPhone小火箭客户端需要点击APP右下角设置，延迟测试方式选ICMP。
 
-飞鸟云官网地址用手机流量访问
 
-https://x1.feiniaoyun01.life
-
-
-飞鸟云最新国内免翻网址：(2024/09/13更新)
+飞鸟云最新国内免翻网址,用手机流量访问：(2024/09/13更新)
 
 https://x.135235.xyz
+
+https://x1.135235.xyz
+
+https://x2.135235.xyz
 
 https://x1.feiniaoyun01.life
 
