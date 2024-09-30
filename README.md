@@ -12,6 +12,11 @@
 
 https://sub.ccsub.site
 
+或者
+
+https://bianyuan.xyz
+
+
 填入订阅地址，其他不用改，往下拉，点击生成订阅地址，再复制转换后的订阅地址，填入到客户端，配置，粘贴URL即可。
 
 iPhone小火箭客户端需要点击APP右下角设置，延迟测试方式选ICMP。
