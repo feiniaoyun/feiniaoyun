@@ -123,8 +123,6 @@ https://3.feiniaoyun01.life
 
 飞鸟云官网：[https://feiniaoyun.org](https://feiniaoyun.org)
 
-飞鸟云官网：[https://feiniaoyun.net](https://feiniaoyun.net)
-
 飞鸟云官网：[https://feiniaoyun.xyz](https://feiniaoyun.xyz)
 
 
