@@ -25,9 +25,15 @@ https://x4.135235.xyz
 
 https://x6.135235.xyz
 
+https://x7.135235.xyz
+
+https://x8.135235.xyz
+
+https://x9.135235.xyz
 
 
-下面是可能被墙了的旧网址，翻墙后访问：
+
+下面是可能被墙了的旧网址，用手机流量访问：
 
 https://x1.feiniaoyun01.life
 
