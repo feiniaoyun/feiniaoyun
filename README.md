@@ -10,6 +10,9 @@
 
 导入到客户端报错的话，浏览器打开
 
+https://sub.170203.xyz
+或者
+
 https://sub.ccsub.site
 
 或者
