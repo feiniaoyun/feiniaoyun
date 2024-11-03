@@ -146,8 +146,6 @@ https://3.feiniaoyun01.life
 
 飞鸟云官网：[https://feiniaoyun.top](https://feiniaoyun.top) 
 
-飞鸟云官网：[https://feiniaoyun.org](https://feiniaoyun.org)
-
 飞鸟云官网：[https://feiniaoyun.xyz](https://feiniaoyun.xyz)
 
 
