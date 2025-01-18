@@ -10,15 +10,15 @@
 
 导入到客户端报错的话，浏览器打开
 
-https://sub.170203.xyz
+https://subcsub.com/
+
+或
+
+https://nexconvert.com/
 
 或者
 
-https://sub.ccsub.site
-
-或者
-
-https://bianyuan.xyz
+https://convert.imgki.com
 
 
 填入订阅地址，其他不用改，往下拉，点击生成订阅地址，再复制转换后的订阅地址，填入到客户端，配置，粘贴URL即可。
