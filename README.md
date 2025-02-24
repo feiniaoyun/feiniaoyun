@@ -26,7 +26,7 @@ https://convert.imgki.com
 iPhone小火箭客户端需要点击APP右下角设置，延迟测试方式选ICMP。
 
 
-飞鸟云最新国内免翻网址,用手机流量访问：(2025/1/13更新)
+飞鸟云最新国内免翻网址,用手机流量访问：(2025/2/25更新)
 
 
 https://fn1.767887.xyz
@@ -67,22 +67,9 @@ https://fn2.170809.xyz
 
 https://fn3.170809.xyz
 
-
 https://fn2.170203.xyz
 
 https://fn3.170203.xyz
-
-https://fn4.156786.xyz
-
-https://fn5.156786.xyz
-
-https://fn6.156786.xyz
-
-https://fn1.156786.xyz
-
-https://fn2.156786.xyz
-
-https://fn3.156786.xyz
 
 https://fn1.170203.xyz
 
