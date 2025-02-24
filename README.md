@@ -86,46 +86,6 @@ https://fn3.156786.xyz
 
 https://fn1.170203.xyz
 
-下面是可能被墙了的旧网址，用手机流量访问：
-
-
-https://x3.135235.xyz
-
-https://x4.135235.xyz
-
-https://x6.135235.xyz
-
-https://x7.135235.xyz
-
-https://x8.135235.xyz
-
-https://x9.135235.xyz
-
-https://x1.feiniaoyun01.life
-
-https://x2.feiniaoyun01.life
-
-https://x3.feiniaoyun01.life
-
-https://7.feiniaoyun01.life
-
-https://8.feiniaoyun01.life
-
-https://9.feiniaoyun01.life
-
-
-https://4.feiniaoyun01.life
-
-https://5.feiniaoyun01.life
-
-https://6.feiniaoyun01.life
-
-https://1.feiniaoyun01.life
-
-https://2.feiniaoyun01.life
-
-https://3.feiniaoyun01.life
-
 
 
 
@@ -169,7 +129,6 @@ https://3.feiniaoyun01.life
 
 飞鸟云官网：[https://feiniaoyun02.life](https://feiniaoyun02.life) 
 
-飞鸟云官网：[https://feiniaoyun01.life](https://feiniaoyun01.life) 
 
 
 
