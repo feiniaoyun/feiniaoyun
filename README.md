@@ -23,11 +23,11 @@ https://sub-store.usuc.cc/
 
 或者
 
-https://sub.170203.xyz/
+https://subweb.datapipe.top/
 
 或者
 
-https://convert.imgki.com
+https://bianyuan.xyz/
 
 填入订阅地址，其他不用改，往下拉，点击生成订阅地址，再复制转换后的订阅地址，填入到客户端，配置，粘贴URL即可。成功翻墙后，官网直接再导入一次订阅，不需要转换订阅。
 ⭐️⭐️⭐️
