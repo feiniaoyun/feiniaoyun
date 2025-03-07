@@ -38,6 +38,15 @@ iPhone小火箭客户端需要点击APP右下角设置，延迟测试方式选IC
 飞鸟云最新国内免翻网址,用手机流量访问：(2025/2/25更新)
 
 
+https://fn1.376897.xyz
+
+https://fn2.376897.xyz
+
+https://fn3.376897.xyz
+
+https://fn4.376897.xyz
+
+
 https://fn1.767887.xyz
 
 https://fn2.767887.xyz
