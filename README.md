@@ -11,7 +11,25 @@
 ⭐️⭐️⭐️导入到客户端报错的话，浏览器打开
 
 
+
 https://nexconvert.com/
+
+或者
+
+https://amyconvert.com/
+
+或者
+
+https://sub-web.qingsay.com
+
+或者
+
+
+https://sub-store.usuc.cc/
+
+或者
+
+https://hutaosubconverter.com/
 
 或者
 
@@ -19,11 +37,21 @@ https://subcsub.com/
 
 或者
 
-https://sub-store.usuc.cc/
+https://v2tun.vercel.app/
 
 或者
 
-https://subweb.datapipe.top/
+https://my.subcloud.xyz/
+
+
+或者
+
+
+https://sub.yoututz.top/
+
+或者
+
+https://psub.888005.xyz/
 
 或者
 
