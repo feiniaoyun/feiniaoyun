@@ -191,6 +191,7 @@ https://fn1.170203.xyz
 [https://feiniaoyun.xyz](https://feiniaoyun.xyz)
 
 
+飞鸟云官网地址防失联发布页： https://github.com/feiniaoyun
 
 请加入我们的TG电报群群组:[https://t.me/feiniaoyunjichang](https://t.me/feiniaoyunjichang) 
 
