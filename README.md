@@ -20,11 +20,11 @@ https://x2.fnxx.cc
 
 https://x3.fnxx.cc
 
-https://x1.feiniaoyun.top
+https://x1.435462.xyz
 
-https://x2.feiniaoyun.top
+https://x2.435462.xyz
 
-https://x3.feiniaoyun.top
+https://x3.435462.xyz
 
 
 https://x2.344233.cc
