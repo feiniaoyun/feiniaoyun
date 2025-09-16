@@ -13,6 +13,14 @@ https://x2.344222.cc
 
 https://x1.344222.cc
 
+
+https://x1.fnxx.cc
+
+https://x2.fnxx.cc
+
+https://x3.fnxx.cc
+
+
 https://x2.344233.cc
 
 https://x1.344233.cc
