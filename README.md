@@ -5,7 +5,7 @@
 您可以获得通过该邀请链接注册的用户所付款的 30% 佣金。
 
 
-飞鸟云最新国内免翻网址,用手机流量访问：(2025/8/29更新)
+飞鸟云最新国内免翻网址,用手机流量访问：(2025/9/17更新)
 
 https://x3.344222.cc
 
@@ -19,6 +19,12 @@ https://x1.fnxx.cc
 https://x2.fnxx.cc
 
 https://x3.fnxx.cc
+
+https://x1.feiniaoyun.top
+
+https://x2.feiniaoyun.top
+
+https://x3.feiniaoyun.top
 
 
 https://x2.344233.cc
