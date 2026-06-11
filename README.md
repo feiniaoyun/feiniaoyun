@@ -12,6 +12,11 @@
 已经导入过的节点可以正常使用，暂时无法访问官网和导入节点。官网要等官网美国服务器供应商，恢复才能正常访问，第一时间恢复会通知。(2026/06/11更新)
 
 
+飞鸟云官网地址防失联发布页： https://github.com/feiniaoyun
+
+请加入我们的TG电报群群组:https://t.me/feiniaoyunjichang
+
+
 https://d.634213.xyz
 
 https://e.634213.xyz
