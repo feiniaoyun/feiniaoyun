@@ -7,7 +7,7 @@
 
 飞鸟云最新国内免翻网址,用手机流量访问：(2026/08/18更新)
 
-https://f5189df1.436225.xyz
+
 
 https://febfbac4.436225.xyz
 
@@ -20,6 +20,8 @@ https://4d173d64.562423.xyz
 https://313a3d9c.562423.xyz
 
 https://88b8dc1c.459245.xyz
+
+https://f5189df1.436225.xyz
 
 https://c40169c6.459245.xyz
 
